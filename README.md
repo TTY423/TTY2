@@ -1,2 +1,2 @@
 # TTY2
-hihi i am hzx 
+hihi i am Hzx
